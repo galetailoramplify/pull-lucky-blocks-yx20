@@ -1,4 +1,4 @@
-#  
+#  rare Scripts for pull lucky blocks offers the most advanced pull lucky blocks Script, with auto-heal and instant win. Perfect for dominating any
 
 
 
